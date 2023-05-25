@@ -9,6 +9,7 @@
 - 📔 My catalog : https://katalog.cimosoft.com
 - 🗂️ My free time : https://blog.cimosoft.com
 - 📺 My words : https://www.wattpad.com/user/arachmadiputra 
+- 💕 My Cute Partner : https://youtube.com/@naonaokiii
 
 **Note : all of them are in Indonesian only**
 
